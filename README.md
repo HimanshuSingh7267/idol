@@ -1,0 +1,2 @@
+# idol
+someone you admire
